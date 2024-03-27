@@ -6,7 +6,7 @@ ZENVIA
 - 💞️ I’m looking to collaborate on new value projects
 - 📫 How to reach me https://github.com/deisekinsk
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love music
+- ⚡ Fun fact: I love music, cats, food and travel
 
 
 
