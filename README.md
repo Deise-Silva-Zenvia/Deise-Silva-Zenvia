@@ -1,6 +1,6 @@
 ZENVIA
 
-- 👋 Hi, I’m @Deise-Silva-Zenvia
+- 👋 Hi, I’m @Deise Silva  at Zenvia
 - 👀 I’m interested in software engenieer
 - 🌱 I’m currently learning developer, lean agile and cloud
 - 💞️ I’m looking to collaborate on new value projects
